@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **anngakii02@gmail.com**
 
-- ⚡ Fun fact **I'm curious**
+- ⚡ Fun fact **Nobody is perfect**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
